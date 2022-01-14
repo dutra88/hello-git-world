@@ -1,1 +1,1 @@
-This the creation of assignment 1 containign a funny image
+This the creation of assignment 1 containing a funny image
